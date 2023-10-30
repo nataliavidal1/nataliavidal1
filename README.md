@@ -1,4 +1,4 @@
-### bem vindo ao meu perfil💬
+### bem vindo ao meu perfil🙏🏻
 
 - Meu nome é natalia
 - Estudo no Maria Destefani Griggio
