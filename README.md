@@ -6,4 +6,4 @@
 - Gosto de ouvir músicas
 
 
-![download](https://github.com/nataliavidal1/nataliavidal1/assets/149423158/fdd44de8-754d-4ec9-a3d8-b0dac66afb33)
+![gif-aleatório-fodase-v0-8re4o232r0r81](https://github.com/nataliavidal1/nataliavidal1/assets/149423158/44d1fde5-dcc0-4779-94c9-01762df0a05d)
