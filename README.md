@@ -6,4 +6,4 @@
 - Gosto de ouvir músicas
 - natalia.vidal.rosa@escola.pr.gov.br
 
-![Uploading download.jpg…]()
+![images](https://github.com/nataliavidal1/nataliavidal1/assets/149423158/f3acdced-adcb-42fe-ad6e-ec9907237f9c)
